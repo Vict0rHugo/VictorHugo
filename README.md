@@ -4,6 +4,6 @@
 
 🏠 Moro atualmente em Resende,RJ.
 
-👀 Estou em busca de aprendizado e oportunidades de trabalho
+👀 Estou em busca de aprendizado
 
 📚 Estou cursando Desenvolvimento de Sistemas, no SESI Senai
